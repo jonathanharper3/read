@@ -7,3 +7,4 @@ as of nov 2024
 5. Fear and Loathing in La Liga: Barcelona, Real Madrid, and The World's Greatest Sports Rivalry - Sid Lowe - Feb 2025
 6. Franny and Zooey - J.D. Salinger - Mar 2025
 7. Harry Potter and the Sorcerer's Stone - J.K. Rowling - Apr 2025
+8. Original Grace - Adam S. Miller - Apr 2025
