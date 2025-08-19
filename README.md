@@ -8,3 +8,4 @@ as of nov 2024
 6. Franny and Zooey - J.D. Salinger - Mar 2025
 7. Harry Potter and the Sorcerer's Stone - J.K. Rowling - Apr 2025
 8. Original Grace - Adam S. Miller - Apr 2025
+9. QB: My Life Behind the Spiral - Steve Young - Aug 2025
