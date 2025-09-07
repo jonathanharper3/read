@@ -9,3 +9,4 @@ as of nov 2024
 7. Harry Potter and the Sorcerer's Stone - J.K. Rowling - Apr 2025
 8. Original Grace - Adam S. Miller - Apr 2025
 9. QB: My Life Behind the Spiral - Steve Young - Aug 2025
+10. Romney: A Reckoning - McKay Coppins - Sept 2025
