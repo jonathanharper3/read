@@ -10,3 +10,4 @@ as of nov 2024
 8. Original Grace - Adam S. Miller - Apr 2025
 9. QB: My Life Behind the Spiral - Steve Young - Aug 2025
 10. Romney: A Reckoning - McKay Coppins - Sept 2025
+11. The Storm and The Tide: Tragedy, Hope and Triumph in Tuscaloosa - Lars Anderson - Sept 2025
