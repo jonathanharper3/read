@@ -12,3 +12,4 @@ as of nov 2024
 10. Romney: A Reckoning - McKay Coppins - Sept 2025
 11. The Storm and The Tide: Tragedy, Hope and Triumph in Tuscaloosa - Lars Anderson - Sept 2025
 12. A Gentleman in Moscow - Amor Towles - Dec 2025
+13. The Big Short: Inside the Doomsday Machine - Michael Lewis - Dec 2025
