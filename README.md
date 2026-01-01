@@ -13,3 +13,4 @@ as of nov 2024
 11. The Storm and The Tide: Tragedy, Hope and Triumph in Tuscaloosa - Lars Anderson - Sept 2025
 12. A Gentleman in Moscow - Amor Towles - Dec 2025
 13. The Big Short: Inside the Doomsday Machine - Michael Lewis - Dec 2025
+14. Liar's Poker: Rising through the Wreckage on Wall Street - Michael Lewis - Jan 2026
