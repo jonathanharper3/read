@@ -14,3 +14,4 @@ as of nov 2024
 12. A Gentleman in Moscow - Amor Towles - Dec 2025
 13. The Big Short: Inside the Doomsday Machine - Michael Lewis - Dec 2025
 14. Liar's Poker: Rising through the Wreckage on Wall Street - Michael Lewis - Jan 2026
+15. The Living Great Lakes: Searching for the Heart of the Inland Seas - Jerry Dennis - Jan 2026
