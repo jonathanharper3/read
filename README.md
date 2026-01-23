@@ -16,3 +16,4 @@ as of nov 2024
 14. Liar's Poker: Rising through the Wreckage on Wall Street - Michael Lewis - Jan 2026
 15. The Living Great Lakes: Searching for the Heart of the Inland Seas - Jerry Dennis - Jan 2026
 16. Dirtbag Billionaire: How Yvon Chouinard Built Patagonia, Made a Fortune, and Gave It All Away - David Gelles - Jan 2026
+17. Goals-Based Investing: A Visionary Framework for Wealth Management - Tony Davidow - Jan 2026
