@@ -17,3 +17,4 @@ as of nov 2024
 15. The Living Great Lakes: Searching for the Heart of the Inland Seas - Jerry Dennis - Jan 2026
 16. Dirtbag Billionaire: How Yvon Chouinard Built Patagonia, Made a Fortune, and Gave It All Away - David Gelles - Jan 2026
 17. Goals-Based Investing: A Visionary Framework for Wealth Management - Tony Davidow - Jan 2026
+18. The Gales of November: The Untold Story of the Edmund Fitzgerald - John U. Bacon - Mar 2026
