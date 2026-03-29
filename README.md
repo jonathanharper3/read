@@ -19,3 +19,4 @@ as of nov 2024
 17. Goals-Based Investing: A Visionary Framework for Wealth Management - Tony Davidow - Jan 2026
 18. The Gales of November: The Untold Story of the Edmund Fitzgerald - John U. Bacon - Mar 2026
 19. Never Lie - Freida McFadden - Mar 2026
+20. Butch Cassidy: The True Story of an American Outlaw - Charles Leerhsen - Mar 2026
