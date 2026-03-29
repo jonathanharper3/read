@@ -20,3 +20,4 @@ as of nov 2024
 18. The Gales of November: The Untold Story of the Edmund Fitzgerald - John U. Bacon - Mar 2026
 19. Never Lie - Freida McFadden - Mar 2026
 20. Butch Cassidy: The True Story of an American Outlaw - Charles Leerhsen - Mar 2026
+21. 1929: Inside the Greatest Crash in Wall Street History and How It Shattered a Nation - Andrew Ross Sorkin - Mar 2026
