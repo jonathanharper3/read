@@ -22,3 +22,4 @@ as of nov 2024
 20. Butch Cassidy: The True Story of an American Outlaw - Charles Leerhsen - Mar 2026
 21. 1929: Inside the Greatest Crash in Wall Street History and How It Shattered a Nation - Andrew Ross Sorkin - Mar 2026
 22. Peddling Protectionism: Smoot-Hawley and the Great Depression - Douglas Irwin - Apr 2026
+23. The Boys of Summer - Roger Kahn - Apr 2026
