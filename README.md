@@ -24,3 +24,4 @@ as of nov 2024
 22. Peddling Protectionism: Smoot-Hawley and the Great Depression - Douglas Irwin - Apr 2026
 23. The Boys of Summer - Roger Kahn - Apr 2026
 24. The Kite Runner - Khaled Hosseini - Apr 2026
+25. Haunts of Mackinac: Ghost Stories, Legends, & Tragic Tales of Mackinac Island - Todd Clements - May 2026
