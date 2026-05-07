@@ -26,3 +26,4 @@ as of nov 2024
 24. The Kite Runner - Khaled Hosseini - Apr 2026
 25. Haunts of Mackinac: Ghost Stories, Legends, & Tragic Tales of Mackinac Island - Todd Clements - May 2026
 26. Haunts of Mackinac The Next Chapter: More Ghost Stories, Legends, and Tragic Tales of Mackinac Island - Todd Clements - May 2026
+27. The Nick Adams Stories - Ernest Hemingway - May 2026
