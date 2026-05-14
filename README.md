@@ -27,3 +27,4 @@ as of nov 2024
 25. Haunts of Mackinac: Ghost Stories, Legends, & Tragic Tales of Mackinac Island - Todd Clements - May 2026
 26. Haunts of Mackinac The Next Chapter: More Ghost Stories, Legends, and Tragic Tales of Mackinac Island - Todd Clements - May 2026
 27. The Nick Adams Stories - Ernest Hemingway - May 2026
+28. Fur, Fortune, and Empire: The Epic History of the Fur Trade in America - Eric Jay Dolin - May 2026
