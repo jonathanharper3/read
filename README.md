@@ -29,3 +29,4 @@ as of nov 2024
 27. The Nick Adams Stories - Ernest Hemingway - May 2026
 28. Fur, Fortune, and Empire: The Epic History of the Fur Trade in America - Eric Jay Dolin - May 2026
 29. Up North in Michigan: A Portrait of Place in Four Seasons - Jerry Dennis - May 2026
+30. Grand Hotel: Mackinac Island - John McCabe - May 2026
