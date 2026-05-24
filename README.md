@@ -30,3 +30,4 @@ as of nov 2024
 28. Fur, Fortune, and Empire: The Epic History of the Fur Trade in America - Eric Jay Dolin - May 2026
 29. Up North in Michigan: A Portrait of Place in Four Seasons - Jerry Dennis - May 2026
 30. Grand Hotel: Mackinac Island - John McCabe - May 2026
+31. Bridging the Straits: The Story of Mighty Mac - Lawrence A. Rubin - May 2026
