@@ -31,3 +31,4 @@ as of nov 2024
 29. Up North in Michigan: A Portrait of Place in Four Seasons - Jerry Dennis - May 2026
 30. Grand Hotel: Mackinac Island - John McCabe - May 2026
 31. Bridging the Straits: The Story of Mighty Mac - Lawrence A. Rubin - May 2026
+32. Too Big to Fail: The Inside Story of How Wall Street and Washington Fought to Save the Financial System from Crisis--and Themselves - Andrew Ross Sorkin - Jun 2026
