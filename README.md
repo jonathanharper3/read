@@ -32,3 +32,4 @@ as of nov 2024
 30. Grand Hotel: Mackinac Island - John McCabe - May 2026
 31. Bridging the Straits: The Story of Mighty Mac - Lawrence A. Rubin - May 2026
 32. Too Big to Fail: The Inside Story of How Wall Street and Washington Fought to Save the Financial System from Crisis--and Themselves - Andrew Ross Sorkin - Jun 2026
+33. Remarkably Bright Creatures - Shelby Van Pelt - Jun 2026
