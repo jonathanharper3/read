@@ -34,3 +34,4 @@ as of nov 2024
 32. Too Big to Fail: The Inside Story of How Wall Street and Washington Fought to Save the Financial System from Crisis--and Themselves - Andrew Ross Sorkin - Jun 2026
 33. Remarkably Bright Creatures - Shelby Van Pelt - Jun 2026
 34. Wait Till Next Year - Doris Kearns Goodwin - Jun 2026
+35. Leviathan: The History of Whaling in America - Eric Jay Dolin - Jun 2026
