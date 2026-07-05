@@ -35,3 +35,4 @@ as of nov 2024
 33. Remarkably Bright Creatures - Shelby Van Pelt - Jun 2026
 34. Wait Till Next Year - Doris Kearns Goodwin - Jun 2026
 35. Leviathan: The History of Whaling in America - Eric Jay Dolin - Jun 2026
+36. Barbarian Days: A Surfing Life - William Finnegan - Jul 2026
