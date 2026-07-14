@@ -36,3 +36,4 @@ as of nov 2024
 34. Wait Till Next Year - Doris Kearns Goodwin - Jun 2026
 35. Leviathan: The History of Whaling in America - Eric Jay Dolin - Jun 2026
 36. Barbarian Days: A Surfing Life - William Finnegan - Jul 2026
+37. The Running Ground: A Father, a Son, and the Simplest of Sports - Nicholas Thompson - Jul 2026
