@@ -37,3 +37,4 @@ as of nov 2024
 35. Leviathan: The History of Whaling in America - Eric Jay Dolin - Jun 2026
 36. Barbarian Days: A Surfing Life - William Finnegan - Jul 2026
 37. The Running Ground: A Father, a Son, and the Simplest of Sports - Nicholas Thompson - Jul 2026
+38. Levels of the Game - John McPhee - Jul 2026
