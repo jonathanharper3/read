@@ -39,3 +39,4 @@ as of nov 2024
 37. The Running Ground: A Father, a Son, and the Simplest of Sports - Nicholas Thompson - Jul 2026
 38. Levels of the Game - John McPhee - Jul 2026
 39. Oranges - John McPhee - Aug 2026
+40. When Breath Becomes Air - Paul Kalanithi - Aug 2026
