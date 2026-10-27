@@ -41,3 +41,4 @@ as of nov 2024
 39. Oranges - John McPhee - Aug 2026
 40. When Breath Becomes Air - Paul Kalanithi - Aug 2026
 41. The Wreck of the Mentor: A True Story of Death, Despair, and Deliverance in the Age of Sail - Eric Jay Dolin - Aug 2026
+42. Blockers: Rebels in the Deep State - Michael Lewis - Oct 2026
